@@ -1,0 +1,2 @@
+# HTML-Portfolio-Template
+Nafie is a combination of good design, quality code and attention for details. It is suitable as a resume website, personal CV, or creative Portfolio. It is ideal for professional persons. Perfect for showing your skills, experience, works and expertise. If you are looking for high-quality and simple resume template for your personal or commercial works, Nafie ideal for you.
